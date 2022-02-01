@@ -1,1 +1,2 @@
-Projetinha vai ser feito aqui felas!
+O projetinho vai ser feito aqui felas!
+Muitas coisinhas e aprendisado, degrau por degrau...
